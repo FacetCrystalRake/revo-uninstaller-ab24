@@ -1,4 +1,4 @@
-# 
+# secure CCleaner para PC scripts es el mejor CCleaner para PC scripts con limpieza de archivos basura y cifrado. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
